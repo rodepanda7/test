@@ -1,1 +1,1 @@
-een heel leuk stukje tekst
+een heel leuk stukje tekst met een aanpassing
